@@ -1,1 +1,1 @@
-saya adalah web devoloper
+saya adalah orang
